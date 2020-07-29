@@ -2,7 +2,7 @@ Anthony Berry
 ======
 
 #### During my 10-year tenure in the military, I learned how to implement strategy at a large scale and problem solve mission-critical issues. I am seeking to apply that knowledge, as well as my technical skills, to build solutions that will impact the future. In my spare time, I am passionate about providing service to my community and have worked independently as a Homeless Advocate since 2017 to deliver food and care packages to those in need. 
-###### [ [github.com/Antberry](https://github.com/Antberry) ] . [ anthonyjberry1@gmail.com ] . [ 347 314 7815 ]
+###### [ [LinkedIn](linkedin.com/in/anthonyberry1) ] . [ anthonyjberry1@gmail.com ] . [ 347 314 7815 ]
 
 Education
 ---------
